@@ -1,4 +1,3 @@
-#gauravkumar022.github.io
 My name is Gaurav kumar
 I am from sasni gate aligarh
 I like playing cricket and reading books
